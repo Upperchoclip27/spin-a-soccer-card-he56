@@ -1,4 +1,4 @@
-
+Experience spin a soccer card like never before with advanced spin a soccer card Script, the #1 Script. Includes one-hit kill and auto-heal for
 
 
 
